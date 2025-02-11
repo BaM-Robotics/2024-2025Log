@@ -1,5 +1,13 @@
 # 2024-2025 Log
 
+## Nikka’s (many mishaps?) Mishapps
+1. Pushed Aryaa’s Chair and Aryaa took away the screws to the calculator nikka then pushed Aryaa outside of the class
+2. Nikka scattered coughdrop fragments across the planning sheet
+3. Nikka has been generally disrespectful to the group
+4. Keeps trying to write on the brainstorming sheet
+5. “This is why we can’t give him nice things” - Aryaa
+6. Made some interesting remarks about team members
+
 ## 9/09/24
 1. Introduced ourselves to one another 
 2. Learned the challenge for the robot we create
